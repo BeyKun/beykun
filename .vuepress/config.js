@@ -10,7 +10,8 @@ module.exports = {
             {text: 'Home', link: '/'},
             {text: 'Portofolio', link: '/portofolio/'},
             {text: 'Blog', link: '/blog/'},
-            { text: 'Github', link: 'https://github.com/BeyKun' }
+            { text: 'Github', link: 'https://github.com/BeyKun' },
+            { text: 'Linkedin', link: 'https://www.linkedin.com/in/bayu-rasukma-raga-87079b192/' }
         ],
         sidebar: {
             '/blog/': [
