@@ -12,5 +12,5 @@ features:
   details: I make web and mobile based applications and I also like writing and designing.
 - title: My Skill
   details: Vue.js, Nuxt.js, Laravel, Lumen, Ionic Framework, MongoDB, MySQL, PostgreSQL, Photoshop.
-footer: Copyright © 2019-Beykun | Powered by Vuepress
+footer: Copyright © 2019-Beykun
 ---
