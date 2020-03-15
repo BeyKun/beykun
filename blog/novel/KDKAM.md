@@ -110,7 +110,7 @@ Sampai kapan?
 
 Pada saatnya kau akan tau nanti.
 
-Pada akhirnya, ku lakukan kesalaan untuk kedua kalinya. Ku sadari semua yang ku lakukan itu salah. Pernah kah kau membayangkan ada seorang yang sudah seberuntung itu meninggalkan semuanya hanya karena hal bodoh? Mungkin itu yang kau pikirkan. Tapi aku menyadari hal yang lebih penting. Hei kau pikir semua yang kulakukan itu untukmu? Mungkin kau memang benar. Tapi ini semua kulakukan bukan hanya karena aku mencintaimu. Ya benar, karena Allah yang menyuruhku. Ya aku tak bisa. Selalu ada yang menariku kembali ketika aku ingin keluar. Kenapa aku sepercaya diri itu? Ya aku percaya. Aku percaya akan ketetapan-Nya. Lagi pula kau tau? Bagi seorang laki-laki janji adalah harga dirinya. Dan aku yakin kaupun tau kalau aku tidak akan menarik semua perkataanku karena itu adalah jalan hidupku.
+Pada akhirnya, ku lakukan kesalaan untuk kedua kalinya. Ku sadari semua yang ku lakukan itu salah. Pernah kah kau membayangkan ada seorang yang sudah seberuntung itu meninggalkan semuanya hanya karena hal bodoh? Mungkin itu yang kau pikirkan. Tapi aku menyadari hal yang lebih penting. Hei kau pikir semua yang kulakukan itu untukmu? Mungkin kau memang benar. Tapi ini semua kulakukan bukan hanya karena aku mencintaimu. Ya benar, karena Allah yang menyuruhku. Ya aku tak bisa. Selalu ada yang menariku kembali ketika aku ingin keluar. Kenapa aku sepercaya diri itu? Ya aku percaya. Aku percaya akan ketetapan-Nya. Lagi pula kau tau? Bagi seorang laki-laki janji adalah harga dirinya. Dan aku yakin kaupun tau kalau aku tidak akan menarik kembali perkataanku karena itu adalah jalan hidupku.
 
 Jadi, aku meninggalkannya?
 
