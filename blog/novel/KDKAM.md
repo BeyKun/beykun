@@ -64,3 +64,78 @@ Kami menuju salah satu taman di Bandung, kebetulan saat weekend taman ini cukup 
 
 To Be Continued.
 
+## Chapter 3 : Cinta Laki-laki Biasa dan 11 Januari
+
+![Image from alias](/img/KDKAM-CH03.jpg)
+
+Pagi yang cerah, kerumunan orang ramai-ramai bergembira menikmati akhir pekan dengan orang-orang yang mereka sayangi. Hamparan rumput sintetis yang menyejukan mata itu menjadi alas bagi mereka. Udara yang sejuk pun menambah suasana damai. Dibawah pohon yang rindang ku duduk, tepat disamping kanan ku Masjid megah yang menjadi salah satu ikon kota ini. Di samping kiri ku taman dengan susunan bunga dan rumput yang menghampar luas. Ku pejamkan mata dan ku hela nafas berat. Tidak lama kemudian seorang gadis berjalan menuju ke arahku. Gamis hitam itu terurai dengan indah, wajah dan gemulai tubuh yang indah itu pasti membuat semua laki-laki akan langsung jatuh hati, belum lagi sifat yang ramah dan kelembutanya membuat semua laki-laki nyaman berada disisinya. Ya pasti sangat beruntung jika seorang lelaki bisa meminang gadis tersebut.
+
+Ya, tinggal dua langkah lagi untuku bisa meminangnya, ku hanya tinggal membawa orang tuaku menuju rumahnya untuk melamar kemudian tinggal merencanakan tanggal pernikahan. Ku membayangkan betapa beruntungnnya aku ketika aku meminangnya. Sudah ku siapkan rencana kedepan. Rumah, pekerjaan, dan yang lainnya. Memang semuanya secara sederhana tapi ku yakin semua itu bisa membawa kami menuju ke jalan yang benar.
+
+Tapi apakah semudah itu?
+
+Apakah ini yang aku inginkan?
+
+Apakah aku seegois itu?
+
+Lantas, semua perjuangan yang lalu itu apa?
+
+Mana semua perkataanku yang lalu itu?
+
+Mana semua janjiku itu?
+
+Apakah semua omongan ku itu hanya omong kosong belaka?
+
+Aku tau… Aku tau… Aku tau…. AKU TAU!
+
+Gelap, menjadi semakin gelap. Warna abu-abu itu menjadi warna hitam. Warna hitam itu menjadi lebih pekat. Tak ada warna yang mampu mewarnainya lagi. Seperti senja yang berganti malam, seperti kereta yang melintas dan terlihat semakin menjauh masuk ke dalam terowongan. Tak ada jalan kembali. Tak ada jalan keluar. 
+
+Aku tau kau tak peduli.
+
+Kucing yang ada diloteng itu akhirnya mati.
+
+Kau tanya kenapa?
+
+Jawabanya sama seperti yang kau ucapkan.
+
+Tak mengingikanmu untuk mengerti dan pilihanku sama dengan mengikhlaskan.
+
+Kau pikir cerita ini tentang aku dan Yunia. Memang kucing itu pernah ditemukan oleh seseorang gadis lain yang kemudian berusaha merawatnya, memandikanya, memberi dia makan, dan bermain dengannya hingga kucing itu lupa memiliki seorang tuan yang sangat ia cintai. Kau lebih tau dariku tentang hewan, tapi pernahkah kau mengalami ketika kau membuang kucing namun kucing itu kembali ke rumahmu dengan sendirinya? Apakah semua yang kau pelajari dari kuliahmu ada hal seperti ini?
+
+Hei kau meminta maaf pada ku? 
+
+Simpan permintaan maafmu untuk nanti.
+
+Sampai kapan?
+
+Pada saatnya kau akan tau nanti.
+
+Pada akhirnya, ku lakukan kesalaan untuk kedua kalinya. Ku sadari semua yang ku lakukan itu salah. Pernah kah kau membayangkan ada seseorang yang sudah seberuntung itu meninggalkan semuanya hanya karena hal bodoh? Mungkin itu yang kau pikirkan. Tapi aku menyadari hal yang lebih penting. Hei kau pikir semua yang kulakukan itu untukmu? Mungkin kau memang benar. Tapi ini semua kulakukan bukan hanya karena aku mencintaimu. Ya benar, karena Allah yang menyuruhku. Ya aku tak bisa. Selalu ada yang menariku kembali ketika aku ingin keluar. Kenapa aku sepercaya diri itu? Ya aku percaya. Aku percaya akan ketetapan-Nya. Lagi pula kau tau? Bagi seorang laki-laki janji adalah harga dirinya. Dan aku yakin kaupun tau kalau aku tidak akan menarik semua perkataanku karena itu adalah jalan hidupku.
+
+Jadi, aku meninggalkannya?
+
+Ya.
+
+Kenapa?
+
+Kenapa kau peduli untuk ini?
+
+Hei kau tau, ada yang ingin aku sampaikan kepadamu. Ya ini sama dengan apa yang aku ingin sampaikan ketika aku mengajakmu bertemu di Malang. Walaupun mungkin ketika kau membaca ini aku sudah tidak ada.
+	
+Aku tau yang aku lawan sekarang tidak sama dengan yang sebelumnya. Tapi itu tidak masalah bagiku. Mencintaimu itu tidak mudah. Aku tau kita sangat berbeda. Memang banyak sekali yang lebih baik darimu dan mudah untuk mendapatkan seorang wanita selain dirimu. Untuk itulah kutilis kisah ini. Bukan maksudku menyudutkanmu, bukan juga maksudku menyalahkanmu. Aku hanya ingin menyadarkanmu walaupun itu mustahil. Ya, karena kau masih sibuk dengan kuliahmu itu dan belum memikirkan beban dan kehidupan yang sebenarnya. Aku maklumi itu, kau pun masih terbawa akan kesenangan dan rasa gembira dari sebuah hubungan yang kau jalani itu. Tak masalah, aku yakin nanti Allah yang akan menyadarkanmu. 
+
+Aku tau aku tak bisa sepertinya, dekat dengamu. Aku juga tidak bisa berada disisimu ketika kau sakit atau membuatuhkan bantuan dari seseorang. Aku juga tidak bisa memberikanmu makanan ketika kau sakit. Tidak, aku tidak bisa memberikanmu barang apapun apalagi ketika uang itu dari kedua orang tuaku. Aku hanya bisa memberimu sebuah boneka yang tidak besar, aku juga hanya bisa memberikan cincin yang harganya tidak lebih mahal dari makanan kesukaanmu yang ada di restoran, dan yang barang terakhir yang bisa kuberikan padamu adalah Al-Quran itu. Aku tak tau apakah barang-barang itu masih kau bawa atau tidak. 
+
+Ya aku tak bisa mengajakmu jalan-jalan dan makan-makan walaupun itu hanya sebatas minum kopi. Ya aku tak bisa. Akupun berasal dari keluarga yang tidak mempunyai segalanya. Aku juga harus berjuang untuk membantu keluargaku di kampung pun juga membantu untuk tanggungan adiku. Mana bisa aku mengajakmu liburan ke pantai dan menginap di hotel mewah. Aku hanya laki-laki biasa. Ohya aku ingat film yang kau rekomendasikan kepadaku dengan judul yang sama. Walaupun memang kisahnya agak berbeda tapi aku ingin menjadi tokoh utama pria yang berjuang menyadarkan istrinya yang kehilangan ingatan. Haha kalau dingat-ingat si istri sadar ketika ada sambaran petir.
+    
+Aku juga tak bisa menjadi laki-laki idamanmu, aku juga tak bisa dibanggakan jika hadir berama teman-temanmu. Aku tak setampan para laki-laki yang mendekatimu pun juga yang bersamamu sekarang. Aku tak bisa seperti mereka yang famous. Mana mungkin aku bisa seperti mereka. Aku hanya seorang laki-laki introvert yang tidak meninggalkan kamar kecuali untuk urusan penting. Yang bisa kulakukan hanya bisa duduk di depan komputerku. Kita juga tak memiliki banyak kenangan seperti yang kau lalui bersama mereka. Apa sih yang bisa kau ingat dariku selain kebejatanku? Ya aku tau, aku tak sebaik mereka. Kita pun bagaikan bumi dan langit. Bagaikan tuan putri dan rakyat jelata. Bagaikan kucing ras dan kucing kampung. Tapi walaupun begitu ini adalah jalan yang sudah aku pilih. Aku sudah berjanji kepadamu. Dan kulakukan sesaui apa yang aku ucapkan. 
+
+Hei, sudah kubilang anggap aku sebagai Ronin. Walaupun sekarang sudah tidak ada yang perlu diperjuangkan lagi tapi jangan khwatir. Sesuai janjiku, aku akan selalu ada untukmu walaupun itu di dunia yang berbeda. Ohya, tiga hari lagi tanggal 18 Maret, walaupun ingi belum saatnya, selamat ulang tahun ya. Kau sudah 20 tahun. Ku harap kau semakin dewasa dan tau mana yang benar dan mana yang salah. Ku bangun pagi ini melihat akun instagrammu, nampaknya kau sangat bahagia. Mungkin itu adalah hadiah ulang tahunmu. Ya tentu aku tak bisa memberikan yang seperti itu. Tapi aku turut bahagia karena doaku selama ini dikabulkan. Setidaknya itu menjadi kado karena biasanya aku memberikan sesuatu kepadamu setiap tahunnya.
+
+Tenang saja, aku tak akan mengganggumu, aku juga sudah berjanji untuk tidak akan hadir di kehidupanmu lagi kan? Tapi memang perlu kusampaikan bahwa sebenarnya yang kau lakukan itu cringe. Hehe sudahlah, nanti kaupun tau maksudku. Ohya, aku belum mengucapkan salam. Itu kata terakhir yang ku dengar darimu. Aku ingin menyimpannya untuk sekarang. 
+Hei, dimanapun kau berada sekarang, aku hanya ingin kau tau aku mencintaimu. Insyallah aku akan hadir disana setiap 11 Januari.
+
+Wassalamualaikum warahmatullahi wabarakatuh, Oyasuminasai. Anggun.
+
+
+The End.

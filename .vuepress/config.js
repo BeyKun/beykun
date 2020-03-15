@@ -4,6 +4,7 @@ module.exports = {
     head: [
         ['link', { rel: 'icon', href: '/img/logo.png' }]
     ],
+    // theme: '@vuepress/blog',
     themeConfig: {
         // logo: '/img/logo.png',
         nav: [
